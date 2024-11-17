@@ -1,0 +1,1 @@
+# krupnova_yana_23_diplom
